@@ -24,3 +24,11 @@ I am 15 years old, born and raised in Brooklyn, New York.My favorite hobbies are
 
 ## Extra
 ---_Git trolled_---
+*  Wow
+    * You fell for it 
+
+
+* Uh
+    * I don't know what to say
+
+
