@@ -7,19 +7,19 @@ My email is tamimk0503@hstat.org
 
 My school is **The Highschool Of Telecommunication Arts & Technology**
 
-I am 15 years old, born and raised in Brooklyn, New York.My favorite hobbies are to play video games and listen to music.
+I am 15 years old, born and raised in Brooklyn, New York.My favorite hobbies are to sleep.
 
 ### Schedule
 
-1. Global History
-2. Spanish 
-3. Chemistry 
-4. SEP
-5. Alegebra 2
-6. Lunch
-7. BHP
-8. English
-9. PE
+1. sleep
+2. Sleep 
+3. sLeep 
+4. SlEep
+5. sleEp
+6. sleeP
+7. peels
+8. slEEp
+9. SlEeP
 
 
 ## Extra
@@ -32,4 +32,4 @@ I am 15 years old, born and raised in Brooklyn, New York.My favorite hobbies are
     * I don't know what to say
 
 
-### [Heres a video](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+### [Click here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
